@@ -1,0 +1,9 @@
+# Daask
+
+Daask is a criminal organization that has recently begun to spread across [[Breland]] and [[Aundair]]. Using violence and intimidation to carve out a niche in the underworld, the group is composed almost exclusively of monsters from [[Droaam]]. Rumors say that [[Sora Katra]] is the mastermind behind this group. In common, the name would translate to "The Monster's Eye."
+
+The [[Protection racket]] is what they are altogether best known for, and they make good on their promises surprisingly often. Most of the violence Daask commits targets other criminal groups, and as they operate only in the most lawless areas many have begun appreciating their fair but harsh justice.
+
+As [[Loan sharks]], they offer the raw gold of [[Droaam]]'s mines to those in need. To ensure swift repayment, they often demand collateral in the form of the "[[Stone loan]]", where one of the borrower's family members is petrified. Failure to repay the debt by the due date results in a finger or toe being chipped from the statue and sent to the borrower for each missed payment. Unclaimed victims are often brought back to Droaam, where they are auctioned off to the highest bidder to make up for lost revenue.
+
+The trade in illicit alchemical substances is where Daask butts heads with other criminal organisations the most, as they compete for the same markets. Aside from long-time junkie favourites such as [[Dreamlily]], Daask also offers one mysterious product no other organization does: [[Dragon's Blood]], a highly addictive substance which enhances arcane magic. Several influential members of society have become addicted to this substance, and as Daask is the only organization which can supply it, this has become an additional level of influence for the group. 
